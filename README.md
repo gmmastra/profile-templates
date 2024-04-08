@@ -8,3 +8,10 @@ Retro CRT:
 
 
 ![retro-crt](https://i.imgur.com/WS8Xf7G.gif)
+
+---
+
+Genshin Impact:
+
+
+![genshin](https://i.imgur.com/N6Ge5on.gif)
